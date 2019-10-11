@@ -1,3 +1,3 @@
 # FASHIONCLOTHING2019
 
-FASHION CLOTHING 2019 !!! CATALOG contains images like a Magazine of wedding dresses, dresses gowns, accessories clothes, dresses, formal clothes, casual clothes, jeans clothes, shorts clothes, shoes clothes.
+FASHIONCLOTHING2019!!! CATALOG created for people that like shopping clothes for wedding brides, bridesmaids, accessories, formal clothes, jeans clothes, short clothes and shoes at stores, city malls for everyone that like good looking and fashion this year 2019!!! or above specially women that look for good combinations at anytime and feel very bright, confident and smart with nice color combinations during the day and at night. Regards, Vanessa Erazo Crespo
